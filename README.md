@@ -1,6 +1,5 @@
-we
+We
 love
 playing
 video
 games
-for
