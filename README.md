@@ -1,5 +1,5 @@
 We
 love
 playing
-video
+Video
 games
